@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @dagoodgamer
+- 👀 I’m interested in coding and gaming
+- 🌱 I’m currently learning in The ABC International School
+- 💞️ I’m looking to collaborate on various projects
+- 📫 How to reach me: Send me a mail on my public Email (hopefully, I'll read it :} )
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like to code games as well as smaller projects
